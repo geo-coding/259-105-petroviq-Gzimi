@@ -10,4 +10,7 @@ Ismail Qemaili
 
 KODRA E ÇANOVIÇËVE
 
+
+103.74
+
 ```
