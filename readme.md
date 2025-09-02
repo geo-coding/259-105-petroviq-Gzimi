@@ -7,6 +7,7 @@ Gëzim (Bajram) Bajrami
 Rr "Skender Qarri"
 Rr "Ismail Qemaili"
 Ismail Qemaili
++38344188726
 
 KODRA E ÇANOVIÇËVE
 
